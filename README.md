@@ -1,1 +1,1 @@
-# gitSample
+# Okawara,Osawa
